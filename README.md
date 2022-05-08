@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @gustyXLE
-- 👀 Me gusta el ARRRRRRTE
+- 👀 Me reee copa la electronica!!
 - 🌱 Estudiando ando
 - 💞️ Quiero aprobar jeje
-- 📫 VENTE PA CA
+- 📫 @gusty_groso 
 
 <!---
 gustyXLE/gustyXLE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
